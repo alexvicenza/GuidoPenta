@@ -8,7 +8,7 @@ Tech Recruiter & co-founder @forloop.tech
 
 🤓 here on GitHub I'm sharing some guides about CV, Linkedin, tech communities (and memes). Check them out :)
 
-💬 If you are searching for a new work in Italy, let's have a chat!
+💬 If you are looking for a new work in Italy, let's have a chat!
 
 <img src="https://media1.giphy.com/media/13HgwGsXF0aiGY/giphy.gif" />
 
